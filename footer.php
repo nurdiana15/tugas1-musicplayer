@@ -1,0 +1,1 @@
+<center>Copyright 2020 &copy; Programmed By NURDIANA SAFITRI
